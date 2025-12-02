@@ -1,4 +1,3 @@
-# Vida da gameplay do jogo :-)
+# Video curto da gameplay do jogo :-)
 
-
-https://github.com/user-attachments/assets/7d474f29-6de7-49a1-83df-843e468194a0
+https://github.com/user-attachments/assets/2ad9a665-7758-4b3e-9f41-a226b779ba9d
